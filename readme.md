@@ -85,6 +85,6 @@ Mix and match these to spice up your journey—totally up to you, champ!
 ---
 
 ## The Game Plan  
-If you’re ready to put in the hours, this roadmap is your golden ticket. No fluff, no shortcuts—just pure, unfiltered growth. Head over to Vizuara’s YouTube channel ([catch it here](https://lnkd.in/g455AJVw)) for all the structured, beginner-friendly playlists you’ll ever need.  
+If you’re ready to put in the hours, this roadmap is your golden ticket. No fluff, no shortcuts—just pure, unfiltered growth. Head over to Vizuara’s YouTube channel ([catch it here](https://www.youtube.com/@vizuara)) for all the structured, beginner-friendly playlists you’ll ever need.  
 
 Your ML glow-up starts *now*. Quit scrolling and start building—your future self will thank you! 🚀
